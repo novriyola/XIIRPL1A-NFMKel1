@@ -1,6 +1,3 @@
 XII RPL 1 grup A
-Kelompok 1
-- Novriyanti Febriyola Manik
-- Septi Vivi Anjani 
+Kelompok 1 
 - Citra Amanda 
-- Egidia Salsalina Sembiring
